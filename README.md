@@ -1,8 +1,6 @@
 - i'm siachinowo.
-- I’m interested in Core Computer Science Concepts, Maths and Art.
-- I’m currently learning Git, Python, C, WSL, and Arch(btw).
-- I’m looking to collaborate on pretty much anything that interests me.
-- How to reach me https://linktr.ee/siachinOwO
+- i use arch, btw.
+- reach me through linktree:  https://linktr.ee/siachinOwO
 - smilee :>>>
 
 
