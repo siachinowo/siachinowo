@@ -1,7 +1,7 @@
-- i'm siachinowo.
+- ✿✿✿
 - i use arch, btw.
-- reach me through linktree:  https://linktr.ee/siachinOwO
-- smilee :>>>
+- [im learning git, py, rust, maths, but im still a noob]
+- linktree:  https://linktr.ee/siachinOwO
 
 
 <!---
